@@ -1,0 +1,1 @@
+# PatikaDev Koleksiyonlar Ödevi
